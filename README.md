@@ -26,7 +26,7 @@ Sometimes I thought "Why have I loved her so much? Why not someone else?". The I
 
 > In my world full of darkness you are spark that makes my world brighter!
 
-There are many things I have done in past that had hurted you and I ensure it won't happen again.
+### There are many things I have done in past that had hurted you and I ensure it won't happen again.
 
 ## Will You Be My Better Half?
 
