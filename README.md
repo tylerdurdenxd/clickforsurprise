@@ -4,33 +4,33 @@
 
 Dear Nikitha,
 
-On this special day, I want to take a moment to celebrate you, the most extraordinary person I have ever known. You light up my world with your smile, and your kindness and strength inspire me every day. As we celebrate your birthday, I want you to know just how much you mean to me and how deeply I cherish every moment we share.
+On your B'day, I want to take a moment to celebrate you, the most lovely gurl I have ever known. Words alone cannot express how much you mean to me. 
 
-To make this day even more special, I have created three unique GitHub Pages just for you:
+To make this day even more special, Open With A Suspence
 
-1. [A Journey Through Our Memories](https://your-github-username.github.io/memory-journey)
-2. [A Love Letter for You](https://your-github-username.github.io/love-letter)
-3. [A Special Birthday Surprise](https://your-github-username.github.io/birthday-surprise)
-
-### A Journey Through Our Memories 📸
-
-Take a walk down memory lane with me as we revisit some of our most cherished moments together. From our first date to our unforgettable adventures, this page is a tribute to all the beautiful memories we’ve created. [Explore our journey](https://your-github-username.github.io/memory-journey).
-
-### A Love Letter for You 💌
-
-Words alone cannot express how much you mean to me, but I've tried to capture the essence of my feelings in this love letter. Pour yourself a cup of tea, get cozy, and let my words wrap you in the warmth of my love. [Read my love letter](https://your-github-username.github.io/love-letter).
-
-### A Special Birthday Surprise 🎁
-
-Birthdays are meant for surprises, and I have something special planned just for you. This page holds a little secret, a heartfelt surprise that I hope will make you smile and feel as special as you truly are. [Discover your surprise](https://your-github-username.github.io/birthday-surprise).
+1. [Pyaar](https://nix3.vercel.app/)
+2. [Prema](https://tylerdurdenxd.github.io/nix1/)
+3. [Kaadhal](https://tylerdurdenxd.github.io/nix2/)
 
 ## My Birthday Wish for You
 
-Nikitha, you are my everything. My wish for you on this special day is that all your dreams come true and that you experience joy, love, and laughter in abundance. May this year bring you closer to your goals and fill your heart with happiness.
+Nikitha, you are my everything. As I look ahead, I see a beautiful future with you by my side. I can't wait for the day when we will spend the rest of our lives together. You are my soulmate, and I am excited for all the adventures and milestones we will share. I am so grateful for every moment we spend together, and I look forward to creating many more beautiful memories with you. You deserve the world, and I am committed to giving you all the love and happiness you can handle.
 
-I am so grateful for every moment we spend together, and I look forward to creating many more beautiful memories with you. You deserve the world, and I am committed to giving you all the love and happiness you can handle.
+At last I would like to say you
+You keep on asking "Why am I so special? What have I done to you? --- I'm not that worth!". Well I got a reasonable answer to it.
+You are special to me in so many ways that it's hard to put into words. You are worth more than you realize, and I am endlessly grateful to have you in my life.
+
+Sometimes I thought "Why have I loved her so much? Why not someone else?". The I realised that "Why not her? Why someone else?". There are certain questions that exists in the universe that can't be explained but can be felt. It's same such scenario.
+
+It had been more than 8 years and my love towards you haven't changed yet.Even though if it was 80 years my love towards you never ends. Even If You Dump Me :)
+
+> In my world full of darkness you are spark that makes my world brighter!
+
+There are many things I have done in past that had hurted you and I ensure it won't happen again.
+
+## Will You Be My Better Half?
 
 Happy Birthday, my love! 🎂🎁🎈
 
 With all my love,
-[Your Name]
+Kumaran S
