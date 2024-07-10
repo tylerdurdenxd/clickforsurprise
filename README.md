@@ -6,11 +6,11 @@
 
 On your B'day, I want to take a moment to celebrate you, the most lovely gurl I have ever known. Words alone cannot express how much you mean to me. 
 
-To make this day even more special, Open With A Suspense
+To make this day even more special, Open The Following With A Suspense
 
-1. [Pyaar](https://nix3.vercel.app/)
-2. [Prema](https://tylerdurdenxd.github.io/nix1/)
-3. [Kaadhal](https://tylerdurdenxd.github.io/nix2/)
+1. [PYAAR](https://nix3.vercel.app/)
+2. [PREMA](https://tylerdurdenxd.github.io/nix1/)
+3. [KAADHAL](https://tylerdurdenxd.github.io/nix2/)
 
 ## My Birthday Wish for You
 
@@ -35,7 +35,7 @@ Cuddling, liplocks, fuc........ just you and me........
 The world outside fades away, and in this perfect moment, it's just you and me, wrapped up in love and warmth, creating memories that we'll stay forever.
 
 ## Will You Be My Better Half?
-
+### I Just Wanna be Yours
 Happy Birthday, my love! 🎂🎁🎈
 
 With Love,
