@@ -29,7 +29,7 @@ Sometimes I thought "Why have I loved her so much? Why not someone else?". The I
 ### There are many things I have done in past that had hurted you and I ensure it won't happen again.
 
 ### One Fine Day
->Imagine it's the year 2030, and it's cloudy and about to rain outside outside. We are inside our room, withthe AC creating the perfect temperature. Wrapped >up together under a warm, blanket, we lie side by side on the bed, our bodies close and our hearts even closer.Your head rests gently on my arms, and I can >feel your breath. My fingers lingering for a moment, feeling the softness of your skin. The smell of rain mixed with the scent of you creating a perfect >blend of romance.
+>Imagine it's the year 2030, and it's cloudy and about to rain outside outside. We are inside our room, withthe AC creating the perfect temperature. Wrapped up together under a warm, blanket, we lie side by side on the bed, our bodies close and our hearts even closer.Your head rests gently on my arms, and I can >feel your breath. My fingers lingering for a moment, feeling the softness of your skin. The smell of rain mixed with the scent of you creating a perfect >blend of romance.
 >In a Dark Room only You And Me watching our favorite series, anime, or movie plays no matter what it is but it's your presence that holds my attention.
 >Cuddling, liplocks, fuc........ just you and me........
 >The world outside fades away, and in this perfect moment, it's just you and me, wrapped up in love and warmth, creating memories that we'll stay forever.
