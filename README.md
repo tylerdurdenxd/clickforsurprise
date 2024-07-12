@@ -6,11 +6,7 @@
 
 On your B'day, I want to take a moment to celebrate you, the most lovely gurl I have ever known. Words alone cannot express how much you mean to me. 
 
-To make this day even more special, Open The Following With A Suspense
 
-1. [PYAAR](https://nix3.vercel.app/)
-2. [PREMA](https://tylerdurdenxd.github.io/nix1/)
-3. [KAADHAL](https://tylerdurdenxd.github.io/nix2/)
 
 ## My Birthday Wish for You
 
